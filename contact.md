@@ -1,1 +1,1 @@
-Contact information here
+Contact page
